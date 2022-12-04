@@ -1,1 +1,1 @@
-# VineethThummanapally.github.io
+# vineeththummanapally.github.io
